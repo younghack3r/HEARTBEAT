@@ -5,7 +5,7 @@ facebook:
 
 love Tanzania hackers.     proud to be Tanzania😂😂😂😂😂expect us.
 
-visit my official websiye : http://youngh4k4.WordPress.com
+visit my official website : http://youngh4k4.WordPress.com
         """""""""""""""""""""""""""""""""
         contact me via gmail:
         godfreymbuva@gmail.com
